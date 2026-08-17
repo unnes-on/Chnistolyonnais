@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @UNNES
-- 👀 I’m interested in CRACKED ...
+Hi, I’m @UNNES
+IN THIS PLACE I WILL SHARE MY STUFF PROJECT
